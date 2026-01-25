@@ -1,1 +1,0 @@
-Thanks for visiting my website! and I hope you do enjoy it. And do NOT steal this website or use ANY of it on here without permission. And if you do steal it, I will find it and take it down if you publish it anywhere. 
